@@ -1,3 +1,3 @@
-# 送给女朋友的情人节礼物
+# 我和瑶瑶的一周年
 
-情人节 🌹，给女朋友的[情书](https://wongjohn.github.io/for-my-love) 💌
+一周年 🌹，给男朋友的[情书](https://github.com/zoyoto/for-yaoyao-love) 💌
